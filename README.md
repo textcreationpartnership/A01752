@@ -35,203 +35,73 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An ansvver to the deuillish detection of Stephane Gardiner, Bishoppe of Wynchester published to the 
+¶ In the viii. leafe i. page and xiiii. line: for ſtaine mne, reade, ſame mine.
+1. To the Reader.
+
+1. The Prologue.
+
 #####Body#####
 
-1. ¶An anſwere cōcerneing the knowledge of The ſēſes, and a declaracion of al the. xii. Articles of the fayth, whyche euerie true Chriſtian man muſte beleue in herte and Confeſſe wyth moUth.
+1. Wincheſters text.
 
-    _ ❧ The fyrſt foundacion.
+    _ ¶An anſwere cōcerneing the knowledge of The ſēſes, and a declaracion of al the. xii. Articles of the fayth, whyche euerie true Chriſtian man muſte beleue in herte and Confeſſe wyth moUth.
 
-    _ ❧ The ſeconde foundacion.
+      * ❧ The fyrſt foundacion.
 
-    _ ❧ The threde foundacion. i. Peter. v.
+      * ❧ The ſeconde foundacion.
 
-1. ❧ The reſoluſion of certen doubtes contained in Wincheſters booke
+      * ❧ The threde foundacion. i. Peter. v.
 
-    _ ❧ The fyrſt foundacion.
+    _ ❧ The reſoluſion of certen doubtes contained in Wincheſters booke
 
-    _ ❧ The ſeconde foundacion.
+    _ ¶ A declaracion of the true churche, what, ſorte of people haue bene the ſame church euen from the beginninge.
 
-    _ ❧ The threde foundacion. i. Peter. v.
+    _ ❧ The vtteringe of the popeyſhe Sophiſmes.
 
-1. ¶ A declaracion of the true churche, what, ſorte of people haue bene the ſame church euen from the beginninge.
+    _ ¶ Of the wordes and the meaneinge, wherin the meaneinge of Chriſte is declared at large by the manifolde circumſtances and certaine other thinges, towcheing the occaſion offered.
 
-    _ ❧ The fyrſt foundacion.
+    _ ❧ The anſweare to Doctoure Damaſcen, whom Wyncheſter rehearſeth in greke.
 
-    _ ❧ The ſeconde foundacion.
+    _ ❧ The foundation whereupon oure fayth is grounded.
 
-    _ ❧ The threde foundacion. i. Peter. v.
+    _ ❧ Of contrarietie and cōtradiction.
 
-1. ❧ The vtteringe of the popeyſhe Sophiſmes.
+    _ Of the worde inſtituciō, and how that the papiſtes do make Chriſte to haue a bodie Imaginatyue or phantaſtical.
 
-    _ ❧ The fyrſt foundacion.
+    _ ❧ Of the quotidian miracles wherin i•… opened Eſcam ſe dedit.
 
-    _ ❧ The ſeconde foundacion.
+    _ ¶ The playne openyng of this text, Do this in the remembraunce of me, and other textes of the ſcripture.
 
-    _ ❧ The threde foundacion. i. Peter. v.
+    _ The cōplaint of God againſt Idolatours
 
-1. ¶ Of the wordes and the meaneinge, wherin the meaneinge of Chriſte is declared at large by the manifolde circumſtances and certaine other thinges, towcheing the occaſion offered.
+    _ ❧ An anſwere to the principal pointes that follow after the doctours in the biſhop of wincheſters boke.
 
-    _ ❧ The fyrſt foundacion.
+    _ ❧ Of the worde ſacrament,
 
-    _ ❧ The ſeconde foundacion.
+    _ ❧ Of the name breade.
 
-    _ ❧ The threde foundacion. i. Peter. v.
+    _ ❧ The church and elders.
 
-1. ❧ The anſweare to Doctoure Damaſcen, whom Wyncheſter rehearſeth in greke.
+    _ ❧ To the gouernours of the people.
 
-    _ ❧ The fyrſt foundacion.
+    _ ❧ To the biſhoppes.
 
-    _ ❧ The ſeconde foundacion.
+    _ ❧ Of thys name Maſſe, and of the diriuation of the ſame.
 
-    _ ❧ The threde foundacion. i. Peter. v.
+    _ ❧ Of theues that ſte•e awaye the fode of the ſoule.
 
-1. ❧ The foundation whereupon oure fayth is grounded.
+    _ ❧ Of the pure ſacrifice of Malachie the prophete.
 
-    _ ❧ The fyrſt foundacion.
+    _ ❧ An anſwere to diuers queſtions
 
-    _ ❧ The ſeconde foundacion.
+    _ ❧ The determinaciō of the doctoures of the greate vniuerſitie of Paris againſt the miniſtracion of the ſacrament in boeth the kyndes.
 
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ Of contrarietie and cōtradiction.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. Of the worde inſtituciō, and how that the papiſtes do make Chriſte to haue a bodie Imaginatyue or phantaſtical.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ Of the quotidian miracles wherin i•… opened Eſcam ſe dedit.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ¶ The playne openyng of this text, Do this in the remembraunce of me, and other textes of the ſcripture.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. The cōplaint of God againſt Idolatours
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ An anſwere to the principal pointes that follow after the doctours in the biſhop of wincheſters boke.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ Of the worde ſacrament,
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ Of the name breade.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ The church and elders.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ To the gouernours of the people.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ To the biſhoppes.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ Of thys name Maſſe, and of the diriuation of the ſame.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ Of theues that ſte•e awaye the fode of the ſoule.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ Of the pure ſacrifice of Malachie the prophete.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ An anſwere to diuers queſtions
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ The determinaciō of the doctoures of the greate vniuerſitie of Paris againſt the miniſtracion of the ſacrament in boeth the kyndes.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
-
-1. ❧ The ceremoneis (wherof the popeiſh religion ſtandeth) the byſhop calleth nothynge, and yet lyke Farthynge, they all ioyned togither make vp the heape.
-
-    _ ❧ The fyrſt foundacion.
-
-    _ ❧ The ſeconde foundacion.
-
-    _ ❧ The threde foundacion. i. Peter. v.
+    _ ❧ The ceremoneis (wherof the popeiſh religion ſtandeth) the byſhop calleth nothynge, and yet lyke Farthynge, they all ioyned togither make vp the heape.
 
 #####Back#####
-An ansvver to the deuillish detection of Stephane Gardiner, Bishoppe of Wynchester published to the 
+
+1. The Table.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
